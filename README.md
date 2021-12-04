@@ -1,2 +1,1 @@
-
-![image](https://giphy.com/embed/RddAJiGxTPQFa/giphy.gif)
+![image](https://media.giphy.com/media/zukJShPCxs7pC/giphy.gif)
